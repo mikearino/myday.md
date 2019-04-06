@@ -1,8 +1,8 @@
-# Day Destroyer!!
+# Day Troyer!!
 
-When you ate a ton of trash and your buns about to blast its diaringus!
-Today was ASAAUGH DUDE HOW CARS
-My favorite plac to visit is crimbus zone
+When you ate a ton of trash and your buns about to blast its Ronald Rangus!
+ASAAUGH DUDE HOW CARS
+My favortitf plac to visit is crimbus HANG ZONE
 My favorift kind of car is a how cars
 The best kind of baf product is bubble salts for your crack pip so you can eat **SOME SHRIMP BOATS**
 
@@ -18,5 +18,5 @@ Here are some things that I don't reccomend doing when you go mattress shopping 
  5. used rag
  6. grandma
  7. shrimp boat
- 8. goats 
+ 8. goats
  9. rangoons
